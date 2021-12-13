@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @legosailor
+- 👀 I sail Optimist class boats in NSW, Australia
+- 🧱 I am also a Lego fanatic
